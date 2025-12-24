@@ -18,6 +18,6 @@ ya itu
 
 dan di aplikasinua juga mendeteksi ID device untuk mencegah menitipkan absen nya sama untuk 1 akun hanya bisa di gunakan untuk 1 device 
 
-nah jadi untuk semuanya ini udah jadi btw jadi tinggal nulis naskah tugas akhir ya sama kayak skripsi cuman ini tugas akhir aku skema magang btw jadi aku bingung mau nulisnya bagaimana kamu bisa bantu aku buat menuliskanya 
+nah jadi untuk semuanya ini udah jadi btw jadi tinggal nulis naskah tugas akhir ya sama kayak skripsi cuman ini tugas akhir aku skema magang btw jadi aku bingung mau nulisnya bagaimana kamu bisa bantu aku buat menuliskanya    
 
 dan ini kan baru awal yah aku butuh bantuan kamu untuk buat kan kerangka bab 1 dulu itu isinya apa aja btw aku masih bignugn untuk pendahuluanya 
